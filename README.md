@@ -1,8 +1,8 @@
 # Milla Domogatskaya
+### www.linkedin.com/in/milla-dom  
 
 ![](/img/millahh.jpg)
-www.linkedin.com/in/milla-dom  
-***
+
 ## Trainee/Junior QA QC Engineer
 ## About
 Actively looking for an opportunity to start working in IT as a QA/QC Engineer. Taking into account my previous experience, I am especially interested in vacancies of companies related to printing and finance.
