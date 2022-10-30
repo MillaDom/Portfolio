@@ -1,6 +1,6 @@
 # Milla Domogatskaya
 
-![](https://www.screencast.com/t/pp8Jvjgh)
+![](/img/millahh.jpg)
 www.linkedin.com/in/milla-dom
 ***
 ## Trainee/Junior QA QC Engineer
