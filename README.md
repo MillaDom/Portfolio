@@ -1,5 +1,5 @@
 # Milla Domogatskaya
-### www.linkedin.com/in/milla-dom  
+### [www.linkedin.com/in/milla-dom](https://www.linkedin.com/in/milla-dom/)  
 
 ![](/img/millahh.jpg)
 
